@@ -1,0 +1,1 @@
+# Shutter-Encoder-18.4-Crack
